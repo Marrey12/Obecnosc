@@ -1,0 +1,2 @@
+# Obecnosc
+jakis opis
